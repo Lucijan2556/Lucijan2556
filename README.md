@@ -1,3 +1,3 @@
 # Hi there 👋
 
-![](https://upload.wikimedia.org/wikipedia/en/9/9a/Trollface_non-free.png)
+![](https://media.discordapp.net/attachments/960260372709900318/962406531918344293/unknown.png)
